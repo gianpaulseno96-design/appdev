@@ -3,7 +3,7 @@
   
 *This is my family. I found it, all on my own. It's little, and broken, but still good. Yeah. Still good." - Stitch pleading to stay with Lilo and Nani.*
 
-*Lilo & Stitch is a lonely Hawaiian girl named Lilo who adopts a destructive alien fugitive named Stitch, helping mend her grieving family through the concept of ʻohana (family).*
+Lilo & Stitch is a lonely Hawaiian girl named Lilo who adopts a destructive alien fugitive named Stitch, helping mend her grieving family through the concept of ʻohana (family).
 
 # ❤️Why I love It 
 *  *The Nostalgia:* 2000s Childhood Staple: Released in 2002 alongside a long-running Disney Channel series, direct-to-video sequels, and video games, Lilo & Stitch became a core childhood memory for Millennials and Gen Z ("Zillennials")
